@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @yerbolatovdodster. I'm new on github, i'm actuallt biologist student interesting in bioinformatics and machine learning processng of UAV imageries 
